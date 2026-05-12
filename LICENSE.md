@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Polymarket algorithm with instant Polymarket Algorithm | slippage-control + event-driven-trading. Featuring slippage-control and event-driven-trading, it's the
 
 
 
